@@ -1,1 +1,2 @@
-# Project-26
+Scrambled eggs:
+First, take 2 eggs and whisk them in a bowl. After they're whisked, add milk and cheese. Next, heat a pan to medium heat. Pour your egg mixture in to the pan and scrape the sides until the eggs are solid. Then the recipe is complete.
